@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **Blood-donor foundations**
 
-- 🤝 I’m looking for help with **BloodHelp startup**
+- 🤝 I’m looking for help with **people who is passionate about new things**
 
 - 👨‍💻 All of my projects are available at [https://chekka-mounika.github.io/Mounika_Chekka_Portfolio/](https://chekka-mounika.github.io/Mounika_Chekka_Portfolio/)
 
